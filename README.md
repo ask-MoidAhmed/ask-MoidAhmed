@@ -49,7 +49,7 @@ Right now, I’m:
 ## 🌎 Let’s Connect!
 
 - 📧 [Email] (ahmedmoid006@gmail.com)  
-- 💼 [LinkedIn] (coming soon....)
+- 💼 [LinkedIn] (https://www.linkedin.com/in/moid-ahmed-2a1096361/)
 ---
 
 ### 🌟 Fun Fact
