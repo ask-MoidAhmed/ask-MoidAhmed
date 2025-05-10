@@ -48,7 +48,7 @@ Right now, I’m:
 
 ## 🌎 Let’s Connect!
 
-- 📧 [Email] (ahmedmoid006@gmail.com)  
+- 📧 [Email] (moidahmed.work@gmail.com)  
 - 💼 [LinkedIn] (www.linkedin.com/in/ask-moidahmed)
 ---
 
